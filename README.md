@@ -1,4 +1,8 @@
-### Hi there 👋
+### Hellooooo :3
+### I'm a CUHK student studying AIST
+### ✨anime and kpop fan ✨
+
+##### please let me pass aist2602 orz
 
 <!--
 **tycheng0/tycheng0** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
